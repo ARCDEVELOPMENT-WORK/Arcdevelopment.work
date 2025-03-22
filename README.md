@@ -109,7 +109,7 @@ We are **always open** to new challenges and ideas! 🚀
 
 ### 🧑‍💻 We’re excited to work with you! 🧑‍💻
 
-![ARC DEVELOPMENT Banner](https://media.giphy.com/media/iwsFHeFMtn3nNxSdP8/giphy.gif?cid=790b76110pb6027t2ietrdsi81v95zkeshxbbswo2xja34aq&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+![ARC DEVELOPMENT Banner](https://i.giphy.com/iwsFHeFMtn3nNxSdP8.webp)
 
 ---
 
